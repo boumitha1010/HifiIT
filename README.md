@@ -1,2 +1,7 @@
 # HifiIT
-just another repository
+ hello!
+ 
+ Tarin Your Brain
+ to go 
+ COOL 
+ in every suituation...
